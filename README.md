@@ -1,1 +1,1 @@
-![ajuma-v1_logo-slogan](https://github.com/ajuma-app/.github/assets/3392815/f611686c-bb59-40c3-ac59-1f6eb4fe8774)
+![ajuma-v2-banner](https://github.com/ajuma-app/.github/assets/3392815/220f7683-818a-4264-8053-8f2bf3d64ad1)
